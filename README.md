@@ -1,0 +1,9 @@
+Assalamu’alaikum warahmatullahi wabarakatuh.
+
+Selamat pagi/siang/sore/malam, Bapak/Ibu Guru Pengampu yang saya hormati. Perkenankan saya untuk memperkenalkan diri; nama saya Firaas Raihansyah Rizqullah, siswa kelas XI RPL A dengan nomor absen 13. Saya berharap Bapak/Ibu selalu dalam keadaan sehat dan sukses dalam melaksanakan tugas mulia mendidik kami.
+
+Adapun maksud dan tujuan saya menulis surat ini adalah untuk menyerahkan tugas pembelajaran mengenai GitHub yang telah Bapak/Ibu berikan. Saya telah berusaha untuk memahami seluruh materi yang diajarkan dan menerapkannya sebaik mungkin dalam pengerjaan tugas ini. Proses pembelajaran yang intensif mengenai GitHub ini tidak hanya memperluas wawasan saya mengenai dunia pemrograman, tetapi juga meningkatkan keterampilan kolaborasi dalam proyek pengembangan perangkat lunak.
+
+Saya sangat mengapresiasi bimbingan, arahan, dan kesabaran Bapak/Ibu selama proses belajar mengajar. Setiap penjelasan dan diskusi yang telah diberikan merupakan sumber inspirasi dan motivasi bagi saya untuk terus belajar dan mengembangkan kemampuan di bidang teknologi informasi. Semoga tugas yang saya kumpulkan ini dapat mencerminkan hasil kerja keras dan pemahaman saya terhadap materi yang telah dipelajari, serta mendapat evaluasi yang membangun untuk peningkatan di masa mendatang.
+
+Demikian surat pengantar tugas ini saya sampaikan. Atas perhatian dan waktu yang telah Bapak/Ibu luangkan, saya mengucapkan terima kasih yang sebesar-besarnya. Semoga Allah SWT selalu melimpahkan rahmat dan keberkahan kepada Bapak/Ibu. Wassalamu’alaikum warahmatullahi wabarakatuh.
